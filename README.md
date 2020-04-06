@@ -31,6 +31,7 @@ No people to forgive for
 what they've done
 
 I really don't mind now
+Making it mine blood    
 just stay away just stay away
 now I live for me and my fam
 it's so hard to describe
