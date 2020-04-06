@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=N_qdXVsdpfQ
 
 **Title:** Helpless / **Featuring:** MOTHNODE
 
-**Production:** YUNG VENXM / **Lyrics:** 
+**Production:** YUNG VENXM / **Lyrics:** MOTHNODE
 
 **Narrative Design:**
 
