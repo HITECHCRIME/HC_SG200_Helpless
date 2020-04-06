@@ -20,7 +20,20 @@ Description.
 ## Lyrics
 
 ```
+[https://www.youtube.com/watch?v=N_qdXVsdpfQ](https://www.youtube.com/watch?v=N_qdXVsdpfQ)
 
+It's for the helpless that I live
+Better alone
+Make do in a crib
+No rotten words inscribed
+symbols cut in stone
+No people to forgive for 
+what they've done
+
+I really don't mind now
+just stay away just stay away
+now I live for me and my fam
+it's so hard to describe
 
 ```
 
