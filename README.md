@@ -9,9 +9,9 @@
 Description.
 https://www.youtube.com/watch?v=N_qdXVsdpfQ
 
-**Title:**  / **Featuring:** 
+**Title:** Helpless / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** YUNG VENXM / **Lyrics:** 
 
 **Narrative Design:**
 
