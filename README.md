@@ -36,6 +36,11 @@ now I live for me and my fam
 
 Lying awake it's so hard to describe
 It weakens your mind
+
+Blessed towards spill my emotions
+I wasn't made to forgive
+Variance too great to deal with distortion
+I made a pact with what was real
 ```
 
 ## Lyrics Testing Ground
