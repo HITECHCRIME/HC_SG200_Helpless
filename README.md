@@ -35,7 +35,7 @@ Make it my blood
 now I live for me and my fam
 
 Got blessed for spilling emotions
-I wasn't made to forgive
+coz I wasn't made to forgive
 Variance too great to deal with distortion
 I made a pact with what wasn't real
 Still got pressed by the cowards
