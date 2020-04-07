@@ -45,6 +45,7 @@ I wasn't ready to give it up
 
 
 people forget what it's like
+just stay awake just stay awake
 it weakens the blood
 
 Lying awake it's so hard to describe
