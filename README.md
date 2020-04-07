@@ -39,7 +39,7 @@ I wasn't made to forgive
 Variance too great to deal with distortion
 I made a pact with what wasn't real
 Still got pressed by the cowards
-limited my will, destroyed the idea of 
+who limited will and destroyed the idea of 
 distant facts, missed the oppression
 I wasn't ready to give it up
 
