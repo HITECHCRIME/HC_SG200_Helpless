@@ -34,13 +34,18 @@ just stay away just stay away
 Make it my blood    
 now I live for me and my fam
 
-Lying awake it's so hard to describe
-It weakens your mind
-
-Blessed towards spill my emotions
+Got blessed towards spilling emotions
 I wasn't made to forgive
 Variance too great to deal with distortion
-I made a pact with what was real
+I made a pact with what wasn't real
+Got pressed by the cowards
+limit to 
+
+
+
+
+Lying awake it's so hard to describe
+It weakens your mind
 ```
 
 ## Lyrics Testing Ground
