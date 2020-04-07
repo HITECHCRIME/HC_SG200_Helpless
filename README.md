@@ -44,7 +44,8 @@ distant facts, missed the oppression
 I wasn't ready to give it up
 
 
-
+people forget what it's like
+it weakens the blood
 
 Lying awake it's so hard to describe
 It weakens your mind
