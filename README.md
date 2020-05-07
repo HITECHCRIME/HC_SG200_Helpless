@@ -69,3 +69,29 @@ It weakens your mind
 ## Notes
 
 ## Music Video
+
+/// Cinematic Narrative Universe of @hitechcrime | Audiovisual Microlabel⁣⁣⁣
+⁣⁣⁣
+/// DIRECTOR OPERATIVE_ @mothnode⁣⁣⁣
+⁣⁣
+/// Quick Mixer livestream preview of the new celebratory 200th song finally being made in a proper DAW instead of a phone. Agents of Hitech Crime are incentivized to follow mixer.com/mothnode to take active part in the making of songs in real time. See you there!⁣
+⁣⁣
+/// True agents of Hitech Crime comment with ]| symbol underneath to your show your flair. Stay in contact with the HQ.⁣⁣⁣
+⁣⁣⁣
+/// TARGET_ MOTHNODE_ Helpless⁣
+/// STATUS_ Song Prototype HC_SG200⁣
+⁣⁣⁣
+/// BEAT_ Yung Venxm⁣ @markslavov ⁣
+/// LYRICAL INSIGHT_⁣⁣⁣
+⁣
+it’s for the helpless that i live⁣
+better alone make do in a crib⁣
+no rotten words inscribed symbols cut in stone⁣
+no people to forgive for what they’ve done⁣
+⁣
+i really don’t mind now⁣
+just stay away x2⁣
+make it, my blood⁣
+now i live for me and my fam⁣
+⁣
+/// NODE STEMS_ #polskitrap #polskirap #darkmusic #gritty #darkness #trap #trapmusic #hitechcrime #mothnode #darktrap #undergroundhiphop #undergroundmusic #undergroundrapper #underground #raw #prototype #newsong #newsong #trapper #music
